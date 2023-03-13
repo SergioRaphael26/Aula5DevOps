@@ -1,0 +1,1 @@
+requistos para ac1

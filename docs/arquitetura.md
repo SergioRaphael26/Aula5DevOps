@@ -1,0 +1,1 @@
+arquitetura para ac1
